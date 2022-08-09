@@ -19,6 +19,6 @@ As Theo delves deeper into the mysteries at the heart of Anemont, he learns far 
   - Seemingly emotionally detached. She can be difficult to get along with, though she does care about those she keeps close. She struggles to convey her emotions and detests “getting sappy.” This disposition lends itself well to running her shop, but not most other places. She doesn’t seem to care very much, though.
   - Loves fighting. Physically, with weapons. Nobody knows where she got that from.
 - Da'at
-  - Technically the first person Theo meets in Anemont. They leave Theo a cryptic message, only to disappear… coming back two weeks later to frame themselves for a murder Theo knows they couldn’t have committed. When their intentions become clear, Theo is burdened with the truth of Da’at’s identity, and he is left to make a decision that has far-reaching consequences.
+  - Technically the first person Theo meets in Anemont. They give Theo a cryptic message, only to disappear… coming back two weeks later to frame themselves for a murder Theo knows they couldn’t have committed. When their intentions become clear, Theo is burdened with the truth of Da’at’s identity, and he is left to make a decision that has far-reaching consequences.
   - Steadfastly dedicated to protecting people, at all costs. Despite their similar goals, Cilas loathes them for reasons that become quickly apparent.
   - Really wants to get into baking. They’re getting better at it!
